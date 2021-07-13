@@ -1,6 +1,5 @@
 Neha Jain
 
-Mobile:  07760658135 | Email: neha16.jains@gmail.com
 
 👔 linkedin : linkedin.com/in/neha-jain-71367631
 
